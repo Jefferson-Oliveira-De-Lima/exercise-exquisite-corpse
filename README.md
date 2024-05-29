@@ -11,3 +11,5 @@ Il traversa les champs et les rivières, grisé par le parfum des fleurs sauvage
 ## À la Rencontre de Nouveaux Amis
 
 Alors que le soleil émergeait à l'horizon, Tonnerre aperçut une troupe de chevaux sauvages au loin. Intrigué, il s'approcha avec prudence, mais bientôt, les autres chevaux l'accueillirent chaleureusement. Ensemble, ils partirent à la découverte de vastes plaines et de forêts mystérieuses, tissant des liens d'amitié qui réchauffaient le cœur de Tonnerre.
+
+Tonnerre s'éveilla à l'aube, les rayons dorés du soleil effleurant son pelage. Devant lui s'étendait un paysage vaste et inconnu, une toile vierge prête à être explorée. Il sentit un frisson d'excitation parcourir son échine, prêt à embrasser chaque instant de cette nouvelle vie.
