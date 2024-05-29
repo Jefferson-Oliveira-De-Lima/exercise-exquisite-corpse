@@ -1,1 +1,1 @@
-# exercise-exquisite-corpse
+# Exercise exquisite corpse
